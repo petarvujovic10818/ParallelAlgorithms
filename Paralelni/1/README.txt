@@ -1,0 +1,1 @@
+Samo kopiraj svaki zadatak u 3 odvojene celije u google colabu
